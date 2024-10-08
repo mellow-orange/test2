@@ -7,3 +7,4 @@
 ## dowolna treść
 
 ## pisze sobie z indonezji do ciebie my love
+## znowu piszeee
